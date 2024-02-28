@@ -1,12 +1,18 @@
-- 👋 Hi, I’m @Kusanasgi
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+# ` • ᴍᴇ ~ ᴋᴜsᴀɴᴀɢɪ • |
 
-<!---
-Kusanasgi/Kusanasgi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+![368cdd7a94467658f7b0e84e8d627b86](https://github.com/Kusanasgi/meme/assets/143155782/2b8464c0-725e-44eb-803c-1bf479b122f8)
+
+!! ᴋᴜsᴀɴᴀɢɪ ɴᴇɴᴇ! ✨ - ^^ !! 
+
+ɪ ʟɪᴋᴇ ғʀɪᴇɴᴅs - ᴇᴠᴇʀʏᴏɴᴇᴇᴠᴇʀʏᴏɴᴇ, ᴛʜᴏsᴇ ᴀʀᴇ ᴍʏ ғᴀᴠᴏғᴀᴠᴏʀɪᴛᴇ! ~ ::
+
+((ᴀ ʙɪᴛ ᴏғ sɪʟʟʏ ))
+
+•• ɴᴏᴛ sᴘᴇᴀᴋɪɴɢ sᴏᴍᴇᴛɪᴍᴇs ᴛᴀʟᴋs ᴀ ʙɪᴛ, ғᴀᴄᴇ ʟᴀɴɢᴜᴀɢᴇ ••
+|| ɪ'ᴍ ɪɴᴛᴇʀᴇsᴛᴇᴅ ᴀɴᴅ ɪɴᴛᴇʀᴀᴄᴛ ᴛᴏ sᴏᴍᴇᴏɴᴇ + ɪ'ᴅ ᴜɴᴅᴇʀsᴛᴀɴᴅ ᴡʜᴇɴ ɪ sᴇᴇ "ᴅɴɪ/ᴅɴɪᴜғ" : ||
+
+^^ ʏᴏᴜ ᴄᴀɴ ɪɴᴛ/ᴄ+ʜ ᴡɪᴛʜ ᴍᴇ ~ ᴅᴏɴ'ᴛ ᴡᴏʀʀʏ ɪᴍ ғʀɪᴇɴᴅʟʏ : ^^
+
+((ɪ'ʟʟ ʙᴇ sᴏᴍᴇᴛɪᴍᴇs ᴀғᴋ/ᴏғғᴛᴀʙ/ʙᴀᴛʜʀᴏᴏᴍ/ʙᴜsʏ ° ɪ'ʟʟ ʙᴇ ᴅɪsᴄᴏɴɴᴇᴄᴛᴇᴅ ᴛɪᴍᴇ ᴏᴜᴛ!))
+
+--- ʟɪᴛᴇʀᴀʟʟʏ ᴏғғᴛᴀʙ ---
