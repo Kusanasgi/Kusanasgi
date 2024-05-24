@@ -1,6 +1,6 @@
 # ` • ᴍᴇ ~ ᴋᴜsᴀɴᴀɢɪ • |
 
-![368cdd7a94467658f7b0e84e8d627b86](https://github.com/Kusanasgi/meme/assets/143155782/2b8464c0-725e-44eb-803c-1bf479b122f8)
+![Untitled2_20240514163315](https://github.com/Kusanasgi/Kusa/assets/143155782/eebd5898-577f-4ebb-95a6-d3355b0f01c7)
 
 !! ᴋᴜsᴀɴᴀɢɪ ɴᴇɴᴇ! ✨ - ^^ !! 
 
