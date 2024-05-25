@@ -4,6 +4,7 @@
 
 ɪ ʟɪᴋᴇ ғʀɪᴇɴᴅs - ᴇᴠᴇʀʏᴏɴᴇ, ᴛʜᴏsᴇ ᴀʀᴇ ᴍʏ ғᴀᴠᴏʀɪᴛᴇ! ~ ::
 
+![nene-nene-kusanagi](https://github.com/Kusanasgi/Kusanasgi/assets/143155782/80572469-8776-445e-9c8b-1f94864be8b2)
 
 
 
