@@ -1,4 +1,5 @@
 # ` • ᴍᴇ ~ ᴋᴜsᴀɴᴀɢɪ • |
+![327348](https://github.com/Kusanasgi/Kusanasgi/assets/143155782/c77857b6-40ad-4052-9d5f-40cbe4baf213)
 
 !! ᴋᴜsᴀɴᴀɢɪ ɴᴇɴᴇ! ✨ - ^^ !! 
 
