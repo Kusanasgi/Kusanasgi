@@ -23,3 +23,5 @@ $${\color{#9caf88}Probably \space you \space can \space C+H \space me!~}$$
  ~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~![tumblr_8ec8d191e7d07781727e3e1485b017a8_23ba1c60_640](https://github.com/Kusanasgi/Kusanasgi/assets/143155782/63865540-7cb3-4d65-8a32-dc66c4485596)~_~_
 
 $${\color{#9caf88}That's\space all, \space THANK \space YOU \space <3}$$ 
+
+                                                         https://rentry.co/c2u3v2nx
