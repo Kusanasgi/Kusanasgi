@@ -2,6 +2,8 @@
 
 $${\color{#cbd5c0}Kusanagi \space Nene}$$
 
+![Leafline_20240526234400.JPEG](https://github.com/Kusanasgi/Kusanasgi/assets/143155782/b11464d6-4a53-471a-af56-bc4963f9d6ad)
+
 $${\color{#9caf88}I'm \space am \space really \space everywhere \space in \space Pony town.}$$
 
 ~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_![nene-kusanagi-kusanagi-nene](https://github.com/Kusanasgi/Kusanasgi/assets/143155782/0624efed-64fc-4d46-8be5-1f9020db9563)~_~_~_~_
