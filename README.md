@@ -24,7 +24,9 @@ $${\color{#9caf88}Probably \space you \space can \space C+H \space me!~}$$
 
   $${\color{#9caf88}I'm \space very \space friendly! \space and \space silly}$$ 
   
-  ⛔ IF YOU SEE THIS ON TOP MY CHAR, DONT MIND IT IM NOT AFK OR SMTH
+  ⛔ IF YOU SEE THIS ON TOP MY CHAR, DONT MIND IT IM NOT AFK OR SMTH, BUT YES IM USUALLY IN OFFTAB DOING SOMETHING- SORRY! 
+
+  (see me walking that means I'm bored finding someone to talk or interact.) 
   *~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~_~~_~_~_~_~_~_~_~_~_~_~_~_~~_~_~_~_~_~_~_~_~_~_~_~_~~_~_~_~_~_~_~_~_~_~_~_~_~~_~_~_~_~_~_~_~_~_~_~_~_~~_~_~_~_~_~_~_~_~_~_~_~_~~_~_~_~_~_~_~_~_~_~_~_~_~~_~_~_~_~_~_~_~_~_~_~_~_~~_~_~_~_~_~_~_~_~*
 
   $${\color{#9caf88}Sometimes \space I'm \space a \space mean.}$$ 
