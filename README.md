@@ -1,6 +1,4 @@
 ## $${\color{#9caf88}YOU \space CAUGHT \space MEE}$$ 
-![pony-town-Fuwina 😢-trot-padded-ponyplush-4x](https://github.com/Kusanasgi/Kusanasgi/assets/143155782/12f2a6c0-b83f-4268-8250-6a1226f57ba0) ((THIS IS ME ON GENSHIN)) [DNC!]
-![pony-town-always get bored_(-boop-padded-4x](https://github.com/Kusanasgi/Kusanasgi/assets/143155782/20db732f-809a-49f8-98d6-5d31c8fd5381) ((THIS IS ME IN SEKAI)) [DNC!]
 
 $${\color{#cbd5c0}Kusanagi \space Nene}$$
 
