@@ -32,7 +32,8 @@ $${\color{#9caf88}Probably \space you \space can \space C+H \space me!~}$$
   $${\color{#9caf88}But \space sometimes \space i'm \space depressed.}$$ 
 
 
-![_project_sekai_mmd_wonderlandsxsho_at_25_00_dl_by_a1192580027_dfq3j9k-pre](https://github.com/Kusanasgi/Kusanasgi/assets/143155782/307820ed-bc8e-41e2-a510-9d7f23c44db2)
-
-
 $${\color{#9caf88}That's\space all, \space THANK \space YOU \space <3}$$ 
+
+https://www.youtube.com/watch?v=7KJQFKSmkHk
+
+PLEASE CLICK THAT LINK ((IM THE EMU COSPLAYER)) IM SO HAPPY I DIDNT KNOW IT WILL BE POSTED IT!!!
