@@ -39,3 +39,13 @@ https://www.youtube.com/watch?v=7KJQFKSmkHk
 PLEASE CLICK THAT LINK ((IM THE EMU COSPLAYER)) IM SO REALLY REALLY SUPER DUPER HAPPY I DIDNT KNOW IT WILL BE POSTED IT!!!
 
 https://www.youtube.com/@ayeon_cosplay SUBSCRIBE HER THAT PERSON I KNEW, TYTYSMM AYEON-CHAN!! I WISH WE COULD MEET IN OUR NEXT PRACTICE, どうもありがとうございます！/매우 감사합니다! <3 
+
+-----------------------------------------------------------
+![Screenshot_2024_0630_005009](https://github.com/Kusanasgi/Kusanasgi/assets/143155782/5bb7db5a-d767-4fb3-8d10-99dceb2b9fce) ![Screenshot_2024_0618_010445](https://github.com/Kusanasgi/Kusanasgi/assets/143155782/56a67d65-0abe-42d9-b5b0-38803e08e272) ![Screenshot_2024_0611_024049](https://github.com/Kusanasgi/Kusanasgi/assets/143155782/e46a912c-d3bd-4af1-8ebd-76af7e9a7b2d) ![Screenshot_2024_0129_234950](https://github.com/Kusanasgi/Kusanasgi/assets/143155782/0416b5a9-75b1-4f8a-bbb3-9fd54c06e83e) !![Screenshot_2024_0203_151224](https://github.com/Kusanasgi/Kusanasgi/assets/143155782/c0390fd0-27c4-462c-bb10-682b69687837)
+
+
+ILYSM U GUYS<3
+
+
+
+
