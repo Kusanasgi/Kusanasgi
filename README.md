@@ -38,4 +38,4 @@ https://www.youtube.com/watch?v=7KJQFKSmkHk
 
 PLEASE CLICK THAT LINK ((IM THE EMU COSPLAYER)) IM SO HAPPY I DIDNT KNOW IT WILL BE POSTED IT!!!
 
-https://www.youtube.com/@ayeon_cosplay PLS SUBSCRIBE HER THAT PERSON I KNEW, TYTYSMM AYEON-CHAN!! I WISH WE COULD MET IN OUR NEXT PRACTICE, どうもありがとうございます！/매우 감사합니다! <3 
+https://www.youtube.com/@ayeon_cosplay PLS SUBSCRIBE HER THAT PERSON I KNEW, TYTYSMM AYEON-CHAN!! I WISH WE COULD MEET IN OUR NEXT PRACTICE, どうもありがとうございます！/매우 감사합니다! <3 
