@@ -37,3 +37,5 @@ $${\color{#9caf88}That's\space all, \space THANK \space YOU \space <3}$$
 https://www.youtube.com/watch?v=7KJQFKSmkHk
 
 PLEASE CLICK THAT LINK ((IM THE EMU COSPLAYER)) IM SO HAPPY I DIDNT KNOW IT WILL BE POSTED IT!!!
+
+https://www.youtube.com/@ayeon_cosplay PLS SUBSCRIBE HER THAT PERSON I KNEW LAST YEARR!! <3
